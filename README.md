@@ -1,1 +1,1 @@
-# TechAmingos
+# TechAmigos
